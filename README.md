@@ -2,7 +2,7 @@
 <p align="center">
 <img src="https://media1.tenor.com/m/Ia-nz10TjSUAAAAd/project-sekai-villain-2dmv.gif" <p/>
 
-<p align="center">　 #SORROWEDSHARK ! ミサキ ❆
+<p align="center">　 #SORROWEDSHARK ! ミサキ 
 
 <p align="center">
 <img src="https://i.imgur.com/uQwzWXt.gif"  <p/>
