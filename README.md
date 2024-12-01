@@ -1,11 +1,2 @@
-<p align="center"> ❝べき論者様は善悪多頭飼い„
 <p align="center">
-<img src="https://media1.tenor.com/m/Ia-nz10TjSUAAAAd/project-sekai-villain-2dmv.gif" <p/>
-
-<p align="center">　 #SORROWEDSHARK ! ミサキ 
-
-<p align="center">
-<img src="https://i.imgur.com/uQwzWXt.gif"  <p/>
-
-<p align="center"> ​❝僕が君を"侵害"するって言いふらしてる„
-<p align="center"> "𝙊𝙝?"
+<img src="https://i.pinimg.com/736x/6d/4d/b0/6d4db0c35513749f9c1d8ec9f0affbdf.jpg" <p/>
