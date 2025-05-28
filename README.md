@@ -10,6 +10,6 @@
 -- -- --
 
 <p align="center">
-stream empurple
+that one guy who don't play about 朝比奈まふゆ
 
 
