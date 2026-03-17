@@ -3,13 +3,13 @@
 
 
 <p align="center">
-<img src="https://pbs.twimg.com/media/GpNXlkpbMAAkWV4?format=jpg&name=240x240" <p/>
+<img src="https://static.wikitide.net/projectsekaiwiki/4/4a/Stamp0704.png" <p/>
   
   
 <p align="center">
 -- -- --
 
 <p align="center">
-that one guy who don't play about 朝比奈まふゆ
+big fan of 朝比奈まふゆ . what a cool guy
 
 
